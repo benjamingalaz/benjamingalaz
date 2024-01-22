@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @benjamingalaz
-- 👀 I’m interested in Web Development
+- 👀 I’m a Web Development junior... for now
 - 🌱 I’m currently learning about few languaje and interactuating a many of them
 - 📫 How to reach me: no, u don't know me so my location is unknown 😉
 - 😄 Pronouns: Tigen or tigen, the "t" is important xd
